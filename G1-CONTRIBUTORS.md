@@ -5,3 +5,4 @@
 - Estrera, Michaela Ma. Alexa D. (@michaela-es)
 - Abel, Zydric (**@zydric**)
 - Tiongzon, Jay Yan (**@mrxception**)
+- Tiongzon, Jay Yan (**@mrxception**)
